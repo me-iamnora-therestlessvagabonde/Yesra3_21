@@ -1,5 +1,5 @@
 # Nuo Wang
-📧 Email: 210610118@stu.hit.edu.cn
+📧 Email: nora.wang@co-careers.com
 
 ## About Me
 A normal person
